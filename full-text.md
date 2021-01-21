@@ -4,7 +4,7 @@
 
 In the spring of a while ago, during a trip to Ireland, I had the chance to
 visit a sacred well. Sacred wells are pilgrimage sites–have been since
-pre-Christian Ireland–with the pagan rituals adapting and persisting through new
+pre-Christian Ireland–with pagan rituals adapting and persisting through new
 Christian tradition.
 
 The well was sheltered in a squat, stone hut, its entrance easy to spot by the
