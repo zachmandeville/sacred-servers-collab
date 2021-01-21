@@ -102,7 +102,7 @@ left clinging to these spaces?
 
 # Liminal Spaces
 
-Perhaps a part of the sacred well's power came from being a liminal space. It is
+Perhaps a part of the sacred well's power came from it being a liminal space. It is
 both land and water; a visible rush from an invisible source. We humans love
 liminal spaces, recognize them as inherently powerful. The rush of emotions that
 come at dusk and dawn, the symbolic depth felt when standing on the beach
