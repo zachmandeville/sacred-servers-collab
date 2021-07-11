@@ -4,7 +4,7 @@
 
 In the spring of a while ago, during a trip to Ireland, I had the chance to
 visit a sacred well. Sacred wells are pilgrimage sites–have been since
-pre-Christian Ireland–with the pagan rituals adapting and persisting through new
+pre-Christian Ireland–with pagan rituals adapting and persisting through new
 Christian tradition.
 
 The well was sheltered in a squat, stone hut, its entrance easy to spot by the
@@ -102,7 +102,7 @@ left clinging to these spaces?
 
 # Liminal Spaces
 
-Perhaps a part of the sacred well's power came from being a liminal space. It is
+Perhaps a part of the sacred well's power came from it being a liminal space. It is
 both land and water; a visible rush from an invisible source. We humans love
 liminal spaces, recognize them as inherently powerful. The rush of emotions that
 come at dusk and dawn, the symbolic depth felt when standing on the beach
